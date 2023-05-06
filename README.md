@@ -1,1 +1,1 @@
-# SuniyIntellekt2
+# SuniyIntellect
